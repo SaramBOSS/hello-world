@@ -1,3 +1,3 @@
 # hello-world
 testing repository
-fvfgbyt
+Smth about myself^)
